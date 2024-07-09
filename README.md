@@ -1,5 +1,5 @@
 👋 Hello! I'm Shakiba Haidari, a dedicated frontend develooper passionate about crafting innovative web solutions. 🚀
-🔗 Connect with me: https://www.linkedin.com/in/Shakiba Haidari/
+🔗 Connect with me: www.linkedin.com/in/shakiba-haidari-3849622a2
 📧 Email: shakibahaidari34@gmail.com
 Professional Summary:
 
